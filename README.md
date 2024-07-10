@@ -1,0 +1,1 @@
+# Sprint-7-Python-Nocions-i-coneixements-b-sics
